@@ -11,4 +11,18 @@ list two or three idias for a websit
 - idia one infomational wesit
 - idia two photogrify
 
-- 
+
+lesson 10
+what is one thing that you think makes a website
+trustworthy.
+
+what makes some thing untrustworthey.
+
+the qality of the website
+hrttps
+chek if googil trustis it
+use
+
+my website
+qalit 
+no dogi
